@@ -95,4 +95,27 @@ Kadangi esate **Ūliha iela 75**, didžiąją dalį geriausių vietų pasieksite
 *   **🅿️ Parkavimas:** Daug paprastesnis ir dauguma vietų nemokamos (lyginant su Lietuva).
 *   **📸 Nuotraukos:** Šiaurinis molas yra pati "instagramiškiausia" vieta mieste.
 
+---
+
+## 🇱🇻 10. MANDAGUMO PAMOKĖLĖ: Bendraukime latviškai!
+Latvių kalba yra vienintelė išlikusi mūsų "sesė", todėl daugelis žodžių skamba panašiai. Vietiniai labai vertina, kai svečiai bando ištarti bent kelis žodžius jų kalba.
+
+**Pagrindinės frazės:**
+*   **Sveiki!** – *Labdien!* (tariama: Lab-dien)
+*   **Ačiū!** – *Paldies!* (tariama: Pal-dies) – labai panašu į mūsų "Padėka".
+*   **Prašau!** – *Lūdzu!* (tariama: Lū-dzu)
+*   **Iki pasimatymo!** – *Uz redzēšanos!* (tariama: Uz red-zė-ša-nuos)
+*   **Atsiprašau** – *Atvainojiet* (tariama: At-vai-nuo-jiet)
+
+**Perkant ar restorane:**
+*   **Kiek kainuoja?** – *Cik tas maksā?* (tariama: Cik tas mak-sa?)
+*   **Sąskaitą, prašau!** – *Rēķinu, lūdzu!* (tariama: Rė-ki-nu, lū-dzu)
+*   **Labai skanu!** – *Ļoti garšīgi!* (tariama: Luoti gar-šy-gi)
+*   **Sėkmės!** – *Visu labu!* (tariama: Vi-su la-bu)
+
+**Gražus žodis pabaigai:**
+*   **Miela (Gražu)** – *Skaisti!* (tariama: Skais-ti). Tai žodis, kurį išgirdę apie jų miestą ar pajūrį, latviai tikrai nusišypsos.
+
+---
+
 ### **Gero savaitgalio Liepojoje!** 🚗👨‍👩 Green️🌊🇱🇻
