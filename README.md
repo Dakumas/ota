@@ -61,11 +61,12 @@ Kadangi esate **Ūliha iela 75**, didžiąją dalį geriausių vietų pasieksite
 
 ## 🍽️ 5. KUR PAVALGYTI (Nuo biudžeto iki patirties)
 1.  **🥔 Hot Potato:** **[Hot Potato](https://www.google.com/maps/search/?api=1&query=Hot+Potato+Liep%C4%81ja)** ([Svetainė](http://hotpotato.lv/)) – Populiariausia vieta centre, nuostabus maistas.
-2.  **☕ Teika:** **[Teika](https://www.google.com/maps/search/?api=1&query=Teika+Liep%C4%81ja)** ([Svetainė](https://teika.cafe/)) – Moderni "city vibe" kavinė.
-3.  **🥘 Smiļģi:** **[Smiļģi](https://www.google.com/maps/search/?api=1&query=Smi%C4%BC%C4%A3i+Liep%C4%81ja)** – Labai skani biudžetinė valgykla (tikra vietinių paslaptis).
-4.  **🥐 Boulangerie:** **[Boulangerie](https://www.google.com/maps/search/?api=1&query=Boulangerie+Liep%C4%81ja)** – Prancūziška kepyklėlė nuostabiems pusryčiams.
-5.  **🍷 Restaurant Olive:** **[Olive](https://www.google.com/maps/search/?api=1&query=Restaurant+Olive+Liep%C4%81ja)** – Ramesnė vakarienė.
-6.  **🍕 Čili Pizza:** **[Čili Pizza](https://www.google.com/maps/search/?api=1&query=%C4%8Cili+Pizza+Liep%C4%81ja)** – Saugu su vaikais.
+2.  **🍕 Doka Pica:** **[Doka Pica](https://www.google.com/maps/search/?api=1&query=Doka+Pica+Liep%C4%81ja)** ([Meniu](https://dokapica.lv/lt/maisto-meniu/)) – **Vietinių legenda.** Tai viena seniausių ir labiausiai vertinamų picerijų mieste. Čia picos kepamos pagal laiko patikrintus receptus, o atmosfera labai jauki ir šeimyniška. Be picų, jie turi ir puikius karštus patiekalus bei desertus. Puikus kainos ir kokybės santykis!
+3.  **☕ Teika:** **[Teika](https://www.google.com/maps/search/?api=1&query=Teika+Liep%C4%81ja)** ([Svetainė](https://teika.cafe/)) – Moderni "city vibe" kavinė.
+4.  **🥘 Smiļģi:** **[Smiļģi](https://www.google.com/maps/search/?api=1&query=Smi%C4%BC%C4%A3i+Liep%C4%81ja)** – Labai skani biudžetinė valgykla (tikra vietinių paslaptis).
+5.  **🥐 Boulangerie:** **[Boulangerie](https://www.google.com/maps/search/?api=1&query=Boulangerie+Liep%C4%81ja)** – Prancūziška kepyklėlė nuostabiems pusryčiams.
+6.  **🍷 Restaurant Olive:** **[Olive](https://www.google.com/maps/search/?api=1&query=Restaurant+Olive+Liep%C4%81ja)** – Ramesnė vakarienė.
+7.  **🍕 Čili Pizza:** **[Čili Pizza](https://www.google.com/maps/search/?api=1&query=%C4%8Cili+Pizza+Liep%C4%81ja)** – Saugu su vaikais.
 
 ---
 
