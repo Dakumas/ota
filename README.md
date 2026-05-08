@@ -16,6 +16,24 @@ Liepoja nėra tik kurortas – tai miestas, turintis tris gilius veidus:
 ## 🚶‍♂️ 2. MARŠRUTAS IŠ ŪLIHA IELA 75 (Pėsčiomis)
 Kadangi esate **Ūliha iela 75**, didžiąją dalį geriausių vietų pasieksite pėsčiomis:
 
+---
+
+### 🏠 JŪSŲ NAKVYNĖ: Apartamentai „Kaijas“
+**Adresas:** **[Ūliha iela 75-1, Liepāja](https://www.google.com/maps/search/?api=1&query=Ūliha+iela+75,+Liepāja)**
+
+**Svarbi informacija (kaip įsikurti):**
+*   **📍 Pateikimas:** Įėjimas iš kiemo pusės, pirmosios durys kairėje.
+*   **🔑 Raktų dėžutė:** Kodas **5515**.
+*   **🅿️ Parkavimas:** Automobilį galite saugiai palikti vidiniame kieme.
+*   **🛏️ Patalynė:** Ją rasite sofos dėžėje (atsidaro abi sofos pusės).
+*   **💰 Atsiskaitymas:** Pinigus galite palikti ant stalo arba pervesti į sąskaitą:
+    *   *Gavėjas:* Normunds Krafts
+    *   *Sąskaita:* LV14UNLA0091020306543 (SEB banka)
+*   **📞 Kontaktai:** Jei prireiktų, skambinkite arba rašykite: **26559808**.
+*   *Linkėjimai nuo šeimininkų – Agnese ir Normunds!*
+
+---
+
 1.  **🌊 Jūros link (5-7 min):** Eikite tiesiai link **[Jūrmalas parks (Pajūrio parkas)](https://www.google.com/maps/search/?api=1&query=J%C5%ABrmalas+parks+Liep%C4%81ja)**. Tai didžiulis parkas su fontanais, skulptūromis ir plačia pėstiesiems skirta alėja.
 2.  **🎸 Muzikų šlovės alėja (10 min):** Netoli Rožių aikštės rasite **[muzikų delnų įspaudus](https://www.google.com/maps/search/?api=1&query=M%C5%ABzi%C4%B7u+slavas+aleja+Liep%C4%81ja)** ir didžiausią gitarą.
 3.  **🏛️ Senamiestis (15 min):** Pasivaikščiokite siauromis gatvelėmis tarp gražių medinių pastatų (ypač **Hika iela** ar **Peldu iela**).
