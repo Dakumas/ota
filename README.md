@@ -23,7 +23,7 @@ Kadangi esate **Ūliha iela 75**, didžiąją dalį geriausių vietų pasieksite
 
 **Svarbi informacija (kaip įsikurti):**
 *   **📍 Pateikimas:** Įėjimas iš kiemo pusės, pirmosios durys kairėje.
-*   **🔑 Raktų dėžutė:** Kodas **5515**.
+*   **🔑 Raktų dėžutė:** Kodas **5*5*1*5**.
 *   **🅿️ Parkavimas:** Automobilį galite saugiai palikti vidiniame kieme.
 *   **🛏️ Patalynė:** Ją rasite sofos dėžėje (atsidaro abi sofos pusės).
 *   **💰 Atsiskaitymas:** Pinigus galite palikti ant stalo arba pervesti į sąskaitą:
