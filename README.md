@@ -101,20 +101,39 @@ Kadangi esate **Ūliha iela 75**, didžiąją dalį geriausių vietų pasieksite
 Latvių kalba yra vienintelė išlikusi mūsų "sesė", todėl daugelis žodžių skamba panašiai. Vietiniai labai vertina, kai svečiai bando ištarti bent kelis žodžius jų kalba.
 
 **Pagrindinės frazės:**
+*   **Taip / Ne** – *Jā / Nē* (tariama: Ja / Nė)
 *   **Sveiki!** – *Labdien!* (tariama: Lab-dien)
 *   **Ačiū!** – *Paldies!* (tariama: Pal-dies) – labai panašu į mūsų "Padėka".
 *   **Prašau!** – *Lūdzu!* (tariama: Lū-dzu)
 *   **Iki pasimatymo!** – *Uz redzēšanos!* (tariama: Uz red-zė-ša-nuos)
 *   **Atsiprašau** – *Atvainojiet* (tariama: At-vai-nuo-jiet)
+*   **Nesuprantu** – *Nesaprotu* (tariama: Ne-sap-ruo-tu)
 
-**Perkant ar restorane:**
-*   **Kiek kainuoja?** – *Cik tas maksā?* (tariama: Cik tas mak-sa?)
+**Kavinėje ir restorane (Kafejnīca):**
+*   **Kava / Arbata** – *Kafija / Tēja* (tariama: Ka-fi-ja / Tė-ja)
+*   **Vanduo** – *Ūdens* (tariama: Ū-dens)
+*   **Sultys** – *Sula* (tariama: Su-la)
+*   **Alus / Vynas** – *Alus / Vīns* (tariama: A-lus / Vyns)
+*   **Duona** – *Maize* (tariama: Mai-ze)
+*   **Žuvis / Mėsa** – *Zivs / Gaļa* (tariama: Zivs / Ga-lia)
 *   **Sąskaitą, prašau!** – *Rēķinu, lūdzu!* (tariama: Rė-ki-nu, lū-dzu)
 *   **Labai skanu!** – *Ļoti garšīgi!* (tariama: Luoti gar-šy-gi)
-*   **Sėkmės!** – *Visu labu!* (tariama: Vi-su la-bu)
+
+**Kasdienybė ir Vietovės:**
+*   **Kur yra...?** – *Kur atrodas...?* (tariama: Kur at-ruo-das...?)
+*   **Tualetas** – *Tualete* (tariama: Tu-a-le-te)
+*   **Parduotuvė** – *Veikals* (tariama: Vei-kals)
+*   **Vaistinė** – *Aptieka* (tariama: Ap-tie-ka)
+*   **Paplūdimys** – *Pludmale* (tariama: Plud-ma-le)
+*   **Gatvė** – *Iela* (tariama: Ie-la) – pamatysite visur ant ženklų.
+*   **Atidaryta / Uždaryta** – *Atvērts / Slēgts* (tariama: At-vėrts / Slėgts)
+*   **Kiek kainuoja?** – *Cik tas maksā?* (tariama: Cik tas mak-sa?)
+*   **Padėkite!** – *Palīdziet!* (tariama: Pa-ly-dziet)
+*   **Vaikas** – *Bērns* (tariama: Bėrns)
 
 **Gražus žodis pabaigai:**
 *   **Miela (Gražu)** – *Skaisti!* (tariama: Skais-ti). Tai žodis, kurį išgirdę apie jų miestą ar pajūrį, latviai tikrai nusišypsos.
+*   **Sėkmės!** – *Visu labu!* (tariama: Vi-su la-bu)
 
 ---
 
