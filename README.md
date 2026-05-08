@@ -5,27 +5,35 @@
 
 Liepoja turi itin turtingą ir sluoksniuotą istoriją, kurią pamatysite miesto architektūroje:
 
-*   **Carinės Rusijos imperijos palikimas (Karosta):** XIX a. pabaigoje statytas didžiulis karinis miestas. Karosta buvo visiškai autonomiška zona su savo infrastruktūra, cerkve ir kalėjimu. Tai buvo Rusijos imperijos vakarinių jūrų vartų bastionas.
-*   **Nepriklausomos Latvijos laikotarpis (1918-1940):** Miesto centre pamatysite nuostabius Art Nouveau (Moderno) stiliaus pastatus. Liepaja trumpam (1919 m.) netgi buvo tapusi Latvijos laikinąja sostine!
-*   **Sovietinis laikotarpis:** Karosta sovietmečiu buvo uždara karinė zona (zatonas), neprieinama net paprastiems Liepojos gyventojams. Šiandien ten pamatysite brutalistinius blokinio stiliaus pastatus, stovinčius šalia carinių raudonų plytų kareivinių.
+*   **Carinės Rusijos imperijos palikimas (Karosta):** XIX a. pabaigoje statytas didžiulis karinis miestas. Karosta buvo visiškai autonomiška zona su savo infrastruktūra, cerkve ir kalėjimu.
+    ![Karosta](https://liepaja.travel/wp-content/uploads/2020/03/Karosta-1-scaled.jpg)
+*   **Nepriklausomos Latvijos laikotarpis (1918-1940):** Miesto centre pamatysite nuostabius Art Nouveau (Moderno) stiliaus pastatus. Liepaja trumpam (1919 m.) netgi buvo tapusi Latvijos laikinąja sostine.
+*   **Sovietinis laikotarpis:** Karosta sovietmečiu buvo uždara karinė zona (zatonas), neprieinama net paprastiems Liepojos gyventojams. Šiandien ten pamatysite brutalistinius blokinio stiliaus pastatus.
 *   **Kuržemės hercogystė:** Liepaja senovėje buvo svarbus Kuržemės uostas. Seniausioje miesto dalyje (prie kanalo) vis dar galima pajusti hanzos pirklių dvasią.
 
 ---
 
 ## 👨‍👩‍👧‍👦 Pramogos su vaikais (Linksmai ir Pigiai)
 
-1.  **[Jūrmalos parko žaidimų aikštelė](https://www.google.com/maps/search/?api=1&query=J%C5%ABrmalas+parks+playground+Liep%C4%81ja)** – Viena didžiausių ir geriausių nemokamų aikštelių Latvijoje. Čia pat yra ir pajūris.
+1.  **[Jūrmalos parko žaidimų aikštelė](https://www.google.com/maps/search/?api=1&query=J%C5%ABrmalas+parks+playground+Liep%C4%81ja)** – Viena didžiausių ir geriausių nemokamų aikštelių Latvijoje.
+    ![Jūrmalos parkas](https://liepaja.travel/wp-content/uploads/2020/03/Bernu-laukums-Jurmalas-parka-scaled.jpg)
 2.  **[Vaikų miestelis (Bērnu pilsētiņa)](https://www.google.com/maps/search/?api=1&query=B%C4%93rnu+pils%C4%93ti%C5%86a+Liep%C4%81ja)** – Dar viena puiki nemokama erdvė vaikų žaidimams.
-3.  **[Liepājos Tarzāns](https://www.google.com/maps/search/?api=1&query=Tarz%C4%81ns+Liep%C4%81ja)** – Nuotykių parkas medžiuose (prie pat ežero). Yra trasų įvairaus amžiaus vaikams (mokama, bet verta).
-4.  **[Promenada ir Laivai](https://www.google.com/maps/search/?api=1&query=Liep%C4%81jas+promen%C4%81de)** – Nemokamas pasivaikščiojimas žiūrint į laivus ir kanalą. Vaikams dažniausiai labai patinka dideli žvejybiniai laivai.
+    ![Vaikų miestelis](https://liepaja.travel/wp-content/uploads/2020/03/Bernu-pilsetina-scaled.jpg)
+3.  **[Liepājos Tarzāns](https://www.google.com/maps/search/?api=1&query=Tarz%C4%81ns+Liep%C4%81ja)** – Nuotykių parkas medžiuose (prie pat ežero). Yra trasų įvairaus amžiaus vaikams.
+    ![Tarzāns](https://liepaja.travel/wp-content/uploads/2020/03/Tarzans-scaled.jpg)
+4.  **[Promenada ir Laivai](https://www.google.com/maps/search/?api=1&query=Liep%C4%81jas+promen%C4%81de)** – Nemokamas pasivaikščiojimas žiūrint į laivui ir kanalą. Vaikams dažniausiai labai patinka!
+    ![Promenada](https://liepaja.travel/wp-content/uploads/2020/03/Promenade-scaled.jpg)
 
 ---
 
 ## 🏛️ Muziejai ir Kultūra
 
 *   **[Liepojos muziejus](https://www.google.com/maps/search/?api=1&query=Liep%C4%81jas+muzejs)** – Labai gražus pastatas, dažnai būna nemokamų arba labai pigių parodų apie miesto istoriją.
-*   **[Karostas kalėjimas (Karostas cietums)](https://www.google.com/maps/search/?api=1&query=Karostas+cietums)** – Unikali vieta (buvęs karinis kalėjimas). Galbūt kiek baisoka mažiems vaikams, bet paaugliams ir suaugusiems – palieka didelį įspūdį.
+    ![Liepojos muziejus](https://liepaja.travel/wp-content/uploads/2020/03/Liepajas-muzejs-scaled.jpg)
+*   **[Karostas kalėjimas (Karostas cietums)](https://www.google.com/maps/search/?api=1&query=Karostas+cietums)** – Unikali vieta (buvęs karinis kalėjimas). Galbūt kiek baisoka mažiems vaikams, bet labai įdomu suaugusiems.
+    ![Karostas kalėjimas](https://liepaja.travel/wp-content/uploads/2020/03/Karostas-cietums-scaled.jpg)
 *   **[Amatininkų namai (Amatnieku nams)](https://www.google.com/maps/search/?api=1&query=Amatnieku+nams+Liep%C4%81ja)** – Galima pamatyti ilgiausius pasaulyje gintaro karolius (123 metrai!).
+    ![Amatininkų namai](https://liepaja.travel/wp-content/uploads/2020/03/Amatnieku-nams-scaled.jpg)
 
 ---
 
@@ -33,10 +41,12 @@ Liepoja turi itin turtingą ir sluoksniuotą istoriją, kurią pamatysite miesto
 
 Kadangi esate **Ūliha iela 75**, didžiąją dalį geriausių vietų galite pasiekti pėsčiomis per 10-20 minučių:
 
-1.  **Išeikite link Jūros (5-7 min):** Eikite tiesiai link **[Jūrmalas parks](https://www.google.com/maps/search/?api=1&query=J%C5%ABrmalas+parks+Liep%C4%81ja)**. Tai didžiulis parkas su fontanais, skulptūromis ir nuostabia pėsčiųjų alėja.
-2.  **Muzikų šlovės alėja (10 min):** Netoli Rožių aikštės (Rožu laukums) rasite **[muzikų delnų įspaudus](https://www.google.com/maps/search/?api=1&query=M%C5%ABzi%C4%B7u+slavas+aleja+Liep%C4%81ja)** ir didžiausią gitarą.
+1.  **Išeikite link Jūros (5-7 min):** Eikite tiesiai link **[Jūrmalas parks](https://www.google.com/maps/search/?api=1&query=J%C5%ABrmalas+parks+Liep%C4%81ja)**. Tai didžiulis parkas su fontanais, takais ir žaidimų aikštele.
+2.  **Muzikų šlovės alėja (10 min):** Netoli Rožių aikštės (Rožu laukums) rasite **[muzikų delnų įspaudus](https://www.google.com/maps/search/?api=1&query=M%C5%ABzi%C4%B7u+slavas+aleja+Liep%C4%81ja)**.
+    ![Muzikų alėja](https://liepaja.travel/wp-content/uploads/2020/03/Muziku-slavas-aleja-scaled.jpg)
 3.  **Senamiestis (15 min):** Pasivaikščiokite siauromis gatvelėmis tarp gražių medinių pastatų (pvz., **Hika iela** ar **Peldu iela**).
 4.  **Promenada (20 min):** Eikite link kanalo. Ten pamatysite **[Gintarinį laikrodį](https://www.google.com/maps/search/?api=1&query=Dzintara+pulkstenis)** ir žvejų laivus.
+    ![Gintarinis laikrodis](https://liepaja.travel/wp-content/uploads/2020/03/Dzintara-pulkstenis-scaled.jpg)
 
 ---
 
@@ -51,7 +61,7 @@ Latvija garsėja savo alaus kultūra. Štai ką verta paragauti ir kur rasti:
 *   **Rygos Juodasis Balzamas (Rīgas Melnais balzams):** Klasika. Bandykite originalų su kava arba serbentų (Currant) – jis skanesnis su sultimis ar kokteiliuose.
 
 **Kur paragauti Liepojoje:**
-1.  **[Miezis un komp.](https://www.google.com/maps/search/?api=1&query=Miezis+un+komp.+Liep%C4%81ja)** (Juliannas pagalms) – geriausia vieta mieste paragauti daugybę rūšių pilstomo latviško ir amatininkų alaus. Labai rekomenduoju!
+1.  **[Miezis un komp.](https://www.google.com/maps/search/?api=1&query=Miezis+un+komp.+Liep%C4%81ja)** (Juliannas pagalms) – geriausia vieta mieste paragauti daugybę rūšių pilstomo latviško ir amatininkų alaus.
 2.  **[Mājas alus](https://www.google.com/maps/search/?api=1&query=Liep%C4%81jas+m%C4%81jas+alus)** – maža parduotuvėlė, kurioje pilstomas „gyvas“ vietinis alus iš statinių į butelius išsinešimui.
 
 ---
@@ -59,7 +69,8 @@ Latvija garsėja savo alaus kultūra. Štai ką verta paragauti ir kur rasti:
 ## 🍽️ Pigus ir Skanus Maistas (Biudžetas)
 
 1.  **[Smiļģi](https://www.google.com/maps/search/?api=1&query=Smi%C4%BC%C4%A3i+Liep%C4%81ja)** – Vietinių mėgiama valgykla-kavinė. Paprasta, bet labai skanu, sočios porcijos ir geros kainos.
-2.  **[Pētertirgus (Turgus)](https://www.google.com/maps/search/?api=1&query=P%C4%93tertirgus+Liep%C4%81ja)** – Geriausia vieta "budget" pietums: nusipirkite šviežios rūkytos žuvies, latviškų bandelių (maizītes) ir pasidarykite pikniką kopose.
+2.  **[Pētertirgus (Turgus)](https://www.google.com/maps/search/?api=1&query=P%C4%93tertirgus+Liep%C4%81ja)** – Geriausia vieta \"budget\" pietums: nusipirkite šviežios rūkytos žuvies, latviškų sūrių ar uogų.
+    ![Pētertirgus](https://liepaja.travel/wp-content/uploads/2020/03/Petertirgus-scaled.jpg)
 3.  **[Čili Pizza](https://www.google.com/maps/search/?api=1&query=%C4%8Cili+Pizza+Liep%C4%81ja)** – Saugus variantas su vaikais, dažnai būna akcijų ir šeimos rinkinių.
 4.  **[Boulangerie](https://www.google.com/maps/search/?api=1&query=Boulangerie+Liep%C4%81ja)** – Kepyklėlė su nuostabia terasa vakarui ar pusryčiams.
 
@@ -68,7 +79,7 @@ Latvija garsėja savo alaus kultūra. Štai ką verta paragauti ir kur rasti:
 ## 📅 Savaitgalio planas (su Auto)
 
 **Šeštadienis:**
-1. Rytas: **Karosta** ([Šiaurinis molas](https://www.google.com/maps/search/?api=1&query=Zieme%C4%BCu+mols+Liep%C4%81ja), [Šiauriniai fortai](https://www.google.com/maps/search/?api=1&query=Zieme%C4%BCu+forti+Liep%C4%81ja)).
+1. Rytas: **Karosta** ([Šiaurinis molas](https://liepaja.travel/wp-content/uploads/2020/03/Ziemelu-mols-scaled.jpg), [Šiauriniai fortai](https://www.google.com/maps/search/?api=1&query=Zieme%C4%BCu+forti+Liep%C4%81ja)).
 2. Pietūs: **Smiļģi** arba turgus.
 3. Popietė: **Jūrmalos parkas** (aikštelė + jūra).
 4. Vakaras: **Promenada** ir laivai.
@@ -76,6 +87,7 @@ Latvija garsėja savo alaus kultūra. Štai ką verta paragauti ir kur rasti:
 **Sekmadienis:**
 1. Rytas: **Turgus** ([Pētertirgus](https://www.google.com/maps/search/?api=1&query=P%C4%93tertirgus+Liep%C4%81ja)) ir **Liepojos muziejus**.
 2. Pietūs: **Bernatai** (automobiliu ~15 min nuo miesto) – piknikas prie jūrų kopų.
+    ![Bernatai](https://liepaja.travel/wp-content/uploads/2020/03/Bernati-scaled.jpg)
 3. Popietė: Pasivaikščiojimas paplūdimiu arba **Tarzāns** parkas.
 
 ---
