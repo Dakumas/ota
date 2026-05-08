@@ -55,6 +55,9 @@ Kadangi esate **Ūliha iela 75**, didžiąją dalį geriausių vietų pasieksite
 **Ką pirkti parduotuvėje:**
 *   **Alus:** *Užavas* (šviesus/tamsus), *Valmiermuiža* (aukščiausia kokybė), *Tērvete* (klasika).
 *   **Gėrimai:** *Rygos Juodasis Balzamas* (Rīgas Melnais balzams) – rekomenduoju serbentų (Currant) skonį.
+*   **Kur pirkti Rygos balzamą?**
+    *   **Specializuotos parduotuvės „Latvijas Balzams“:** Čia rasite didžiausią pasirinkimą ir dovanų rinkinius (**[Graudu iela 45](https://www.google.com/maps/search/?api=1&query=Latvijas+Balzams+Graudu+iela+45+Liep%C4%81ja)** arba **[Zivju iela 3](https://www.google.com/maps/search/?api=1&query=Latvijas+Balzams+Zivju+iela+3+Liep%C4%81ja)**).
+    *   **Prekybos tinklai:** Rimi Hyper (**Ostmala**, **Rietumu centrs**) ar Maxima XX.
 *   **Užkandžiai:** Rūkyta žuvis (turguje!), latviškos bandelės (maizītes).
 
 **Kur ragauti mieste:**
