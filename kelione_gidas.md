@@ -1,6 +1,6 @@
 # 🚗 KELIONĖS VEDLYS: Klaipėda – Liepoja 🌊
 
-Šis gidas padės tau išnaudoti kiekvieną kilometrą važiuojant iš Klaipėdos į Liepoją. Kelias nėra ilgas (apie 100 km), tačiau pakeliui gausu vietų, kurios vertos trumpo sustojimo.
+Šis gidas padės tau išnaudoti kiekvieną kilometrą važiuojant iš Klaipėdos į Liepoją. Kelias nėra ilgas (apie 100 km), tačiau pakeliui gausu vietų, kurios vertos sustojimo: nuo laipiojimo kopomis iki ramių piknikų laukinėje gamtoje.
 
 ---
 
@@ -22,36 +22,62 @@ Prieš kertant sieną, verta užsukti į šias vietas:
 
 ---
 
-## 🇱🇻 3. LATVIJOS PASIENIS IR PAPE (Gamtos mylėtojams)
+## 🇱🇻 3. LATVIJA: Laukinė Gamta, Laipiojimas ir Piknikai
 
-Kirtus sieną (Būtingė/Rucava), prasideda visai kitoks pajūris – laukinis ir mažiau paliestas:
+Kirtus sieną (Būtingė/Rucava), prasideda tikrasis Latvijos pajūrio šarmas:
 
-*   **🦓 [Papes dabas parks (Papės gamtos parkas)](https://www.google.com/maps/search/?api=1&query=Papes+dabas+parks)** – **BŪTINA APLANKYTI.** Reikia pasukti į kairę link jūros. Čia rasite:
-    *   Laukinius arklius (Tarpanus) ir taurų protėvius (Aurochs).
-    *   Ežero pelkės pažintinį taką.
-    *   **[Papes švyturys](https://www.google.com/maps/search/?api=1&query=Papes+b%C4%81ka)** – Gražus, istorinis švyturys ant paties kranto.
-*   **⛪ [Rucavas muiža ir baznīca](https://www.google.com/maps/search/?api=1&query=Rucavas+bazn%C4%ABca)** – Baltas mūrinis pastatas ir gražiai prižiūrėtas Rucavos miestelis. Čia galima rasti autentiškų latviškų motyvų.
+### 🦓 [Papės gamtos parkas (Papes dabas parks)](https://www.google.com/maps/search/?api=1&query=Papes+dabas+parks)
+**Must-visit gamtos mylėtojams.** Nuo Rucavos pasukite link jūros (apie 9 km žvyrkeliu):
+*   **Laukiniai gyvūnai:** Galima pamatyti laukinius arklius ir taurus jų natūralioje aplinkoje.
+*   **[Papes švyturys](https://www.google.com/maps/search/?api=1&query=Papes+b%C4%81ka):** Balto mūro švyturys ant paties jūros kranto. Aplink j jį – idealios vietos **pasiiti ant žolės ar kopose** ir pasimėgauti ramybe su savo maistu.
 
----
+### 👣 [Dunika pelkės takas (Dunikas purva taka)](https://www.google.com/maps/search/?api=1&query=Dunikas+purva+taka)
+Šiek tiek toliau nuo pagrindinio kelio (į dešinę nuo Rucavos), bet tai **viena ilgiausių pelkių takų Europoje**:
+*   **Pasivaikščioti:** 6 km ilgio medinis takas per unikalią pelkę. Absoliuti tyla ir ramybė. Puiki vieta „pravėdinti galvą“.
 
-## 🌲 4. NICA IR BERNĀTI (Paskutinė stotelė prieš Liepoją)
+### 🌲 [Pūsēnu kāpa – Aukščiausia Latvijos kopa](https://www.google.com/maps/search/?api=1&query=P%C5%ABs%C4%93nu+k%C4%81pa)
+Netoli Bernatų rasite šią įspūdingą vietą:
+*   **Palaipioti:** 37 metrų aukščio kopa. Į viršūnę veda sutvarkyti laiptai – iššūkis ir pramoga visai šeimai, o viršuje laukia vaizdas į jūrą virš pušų viršūnių.
 
-*   **🌸 [Nica](https://www.google.com/maps/search/?api=1&query=Nica+Latvia)** – Miestelis, garsėjantis savo gėlynais ir pavyzdinėmis sodybomis. Tai vienas gražiausių Latvijos kaimų.
-*   **⛰️ [Bernāti (Latvijos kraštinis taškas)](https://www.google.com/maps/search/?api=1&query=Bern%C4%81ti)** – Čia stovi paminklas pirmam Latvijos prezidentui J. Čakstei. Rekomenduoju sustoti pasivaikščioti takais per aukštas kopas link jūros. Čia pajusite tą tikrąją Liepojos vėjo pradžią.
-
----
-
-## 🍽️ 5. KUR SUSTOTI UŽKĄSTI PAKELIUI?
-
-1.  **[Vienkiemis](https://www.google.com/maps/search/?api=1&query=Vienkiemis+Kretingos+rajonas)** (prie Kretingos/Palangos) – Jei norite lietuviškų sočių pietų prieš kelionę.
-2.  **[Apsitė](https://www.google.com/maps/search/?api=1&query=Apsite+Nica)** (Nicoje) – Labai gerai vertinama latviška kavinė/restoranas prie pat pagrindinio kelio. Puiki vieta pietums jau Latvijos pusėje.
+### ⛰️ [Bernāti: Rami pajūrio oazė](https://www.google.com/maps/search/?api=1&query=Bern%C4%81ti)
+*   **Piknikas gamtoje:** Bernatuose yra nuostabios, sutvarkytos vietos po pušimis su suoliukais ir stalais.
+*   **Pajūris:** Čia pajūris ramesnis, o jūra atrodo „arčiau“ dėl aukštų krantų.
 
 ---
 
-## 💡 NAUDINGA INFORMACIJA
+## 🍽️ 4. KUR SUSTOTI UŽKĄSTI PAKELIUI?
 
-*   **⛽ Kuras:** Paprastai Latvijoje kuras būna šiek tiek brangesnis nei Lietuvoje, tad geriau užsipilti pilną baką Šventojoje ar Palangoje.
-*   **🛣️ Kelio kokybė:** Kelias nuo sienos iki Liepojos yra geras, tačiau būkite atidūs – Latvijos policija dažnai stovi su radarais mažuose miesteliuose (pvz. Rucava ar Nica).
-*   **🕒 Laikas:** Neskubėkite. Sustojimas Papėje gali užtrukti 1-2 valandas, bet tai bus ryškiausias kelionės momentas.
+1.  **[Bernātu Dzintariņš](https://www.google.com/maps/search/?api=1&query=Bernatu+Dzintarins):** Labai stilinga ir vertinama vieta Bernatuose (miško apsuptyje). Puikus maistas ir terasa.
+2.  **[Kavinė „Apsitė“ (Nica)](https://www.google.com/maps/search/?api=1&query=Apsite+Nica):** Jauki vieta Nicoje su latvišku meniu ir lauko stalais.
+3.  **[Vienkiemis](https://www.google.com/maps/search/?api=1&query=Vienkiemis+Kretingos+rajonas):** Klasika Lietuvos pusėje.
 
-### **Saugios ir įdomios kelionės link Liepojos!** 🚗🌊🇱🇻
+---
+
+## 💡 NAUDINGA INFORMACIJA: Lietuva vs Latvija (Kainos ir Patarimai)
+
+Kad kelionė būtų ne tik įdomi, bet ir ekonomiška, štai trumpas palyginimas, ką verta daryti Lietuvoje, o ką – Latvijoje:
+
+### ⛽ Kuras ir Keliai
+*   **Lietuvoje:** Kuras (benzinas/dyzelinas) beveik visada **pigiau**. **Patarimas:** Užsipilkite pilną baką Šventojoje ar Palangoje prieš kertant sieną.
+*   **Latvijoje:** Kurui taikomi didesni akcizai, todėl litras gali kainuoti 5–10 centų brangiau.
+
+### 🍱 Maistas ir Gėrimai
+*   **Lietuvoje (Rinkis čia):** Mėsos gaminiai, pieno produktai ir standartinis prekybos centrų krepšelis dažnai šiek tiek pigesnis. 
+*   **Latvijoje (Rinkis čia dėl kokybės/skonio):**
+    *   **Žuvis:** Rūkyta žuvis pajūryje (ypač žvejų kaimeliuose kaip Papė ar Liepojos turguje) yra šviežesnė ir dažnai geresnės kainos.
+    *   **Duona ir Saldėsiai:** Latviška „Lāči“ tipo duona ar jų sausainiai/bandelės yra unikalūs.
+    *   **Alus:** Latviškas *Craft* alus (*Užavas*, *Valmiermuiža*) yra brangesnis nei masinis lietuviškas alus, bet vertinamas dėl kokybės.
+    *   **Gėrimai:** „Lāčplēsis“ gira (kvass) ar „Rīgas“ balzamas – pigiau nei pas mus (dėl vietinės gamybos).
+
+### 🏷️ Rūbai ir Apsipirkimas
+*   **Lietuvoje:** Populiariai sakoma, kad Lietuvoje (pvz. Akropolis) didžioji dalis tarptautinių tinklų (ZARA, H&M) turi panašias kainas, tačiau **nuolaidos** pas mus dažnai agresyvesnės.
+*   **Latvijoje:** Liepoja nėra didelis mados centras, tačiau joje rasite unikalų latvišką apatinį trikotažą (pvz. „Lauma“ – jų gamykla yra Liepojoje!), kuris vietoje kainuoja gerokai **pigiau** nei Lietuvoje.
+
+### 💰 Ką geriausia daryti?
+1.  **Apsiperk Lietuvoje:** Pagrindinį maisto krepšelį piknikui ir degalus.
+2.  **Mėgaukis Latvijoje:** Vietinėmis gėrybėmis (žuvis, sūris, gira), kurių nerasi pas mus.
+3.  **Restoranai:** Kainos Liepojos restoranuose (pvz. „Hot Potato“) yra **panašios arba šiek tiek mažesnės** nei Palangos J. Basanavičiaus gatvėje, o kokybė dažnai lenkia kurortines vietas.
+
+---
+
+### **Saugios ir įkvepiančios kelionės link Liepojos!** 🚗🌊🇱🇻
