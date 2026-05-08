@@ -1,9 +1,4 @@
 # 🇱🇻 Išsamus Liepojos Gidas: Šeima, Pramogos ir Skonis
-
-Šis gidas paruoštas jūsų viešnagei Liepojoje. Kadangi esate su automobiliu ir vaikais, parinkau vietas, kurios būtų įdomios visai šeimai ir draugiškos piniginei.
-
-*Patarimas: Šį dokumentą galite išsisaugoti kaip PDF tiesiog peržiūros režime (Preview) paspaudę „Spausdinti“ (Print) -> „Save as PDF“, arba atsidarę naršyklėje.*
-
 ---
 
 ## 🏛️ Istorijos pėdsakai: Nuo Imperijos iki Sovietų
