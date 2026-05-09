@@ -42,6 +42,7 @@ Netoli Bernatų rasite šią įspūdingą vietą:
 ### ⛰️ [Bernāti: Rami pajūrio oazė](https://www.google.com/maps/search/?api=1&query=Bern%C4%81ti)
 *   **Piknikas gamtoje:** Bernatuose yra nuostabios, sutvarkytos vietos po pušimis su suoliukais ir stalais.
 *   **Pajūris:** Čia pajūris ramesnis, o jūra atrodo „arčiau“ dėl aukštų krantų.
+*   **🗼 [Bernatų apžvalgos bokštas (Bernātu skatu tornis)](https://www.google.com/maps/place/56%C2%B022'30.9%22N+20%C2%B058'55.9%22E/@56.3752618,20.9821932,17z/):** Naujausias rajono akcentas. Bokštas stovi ant kopos, todėl panorama į jūrą ir miškus yra tiesiog kvapą gniaužianti. Ideali vieta nuotraukoms.
 
 ---
 
